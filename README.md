@@ -9,22 +9,22 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 
 **LOGOMARCA BRIGADEIRÍSSIMAS GOURMET**
 
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png>
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
 
 **LOGOMARCA BARBEARIA DO JOÃO**
 
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/6d5ee471023407.5bf8385fe2e80.png>
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6d5ee471023407.5bf8385fe2e80.png)
 
 **VETOR DE UMA MOÇA AFRICANA**
 
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/d71d6971023407.5bf8385fe7a11.png>
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/d71d6971023407.5bf8385fe7a11.png)
 
 **LOGOMARCA CERVEJA LOURD**
 
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/6078a371023407.5bf8385fe89b4.png>
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6078a371023407.5bf8385fe89b4.png)
 
 **IDENTIDADE VISUAL DRAGONFLY**
 
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png>
-<https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png>
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
 
