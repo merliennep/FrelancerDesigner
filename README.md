@@ -7,9 +7,10 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 ____________________________________________________________________________________________________________________________________________________________________________
 
 **POSTAGEM PARA UM CANAL DE STREAMER**
+____________________________________________________________________________________________________________________________________________________________________________
 
 Nesse trabalho eu realizava as postagens diárias no Instagram para divulgação dos dias e horários das lives do canal do meu amigo streamer Tiago.
-****************************************************************************************************************************************************************************
+
 Ferramentas Utilizadas
  - PSD 
  - AI
