@@ -5,7 +5,7 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 
 **POSTAGEM PARA UM CANAL DE STREAMER**
 
-[](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dbb81279255317.5cbdfdd8565d3.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dbb81279255317.5cbdfdd8565d3.png)
 
 **LOGOMARCA BRIGADEIRÍSSIMAS GOURMET**
 
