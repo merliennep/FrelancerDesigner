@@ -7,8 +7,6 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 
 ![Logomarca para a loja de docinhos de uma amiga. Usei o Photoshop e Illustrator.](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
 
-![Logomarca para a loja de docinhos de uma amiga. Usei o Photoshop e Illustrator.](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
-
 ![Nova logomarca para a barbearia de um amigo. Usei o Photoshop e Illustrator.](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6d5ee471023407.5bf8385fe2e80.png)
 
 ![Um trabalho pessoal para treinar o uso das ferramentas da pen tool, pintura com gradiente, uso de iluminação e colagem de background. Usei o Illustrator.](https://mir-s3-cdn-cf.behance.net/project_modules/fs/d71d6971023407.5bf8385fe7a11.png)
