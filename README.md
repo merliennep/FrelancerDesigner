@@ -1,4 +1,4 @@
-                                                                       # PORTIFÓLIO DESIGNER
+# PORTIFÓLIO DESIGNER
 
 Portifólio de materiais de design gráfico PSD/AI
 
@@ -6,7 +6,7 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 
 ____________________________________________________________________________________________________________________________________________________________________________
 
-                                                                **POSTAGEM PARA UM CANAL DE STREAMER**
+**POSTAGEM PARA UM CANAL DE STREAMER**
 
 Nesse trabalho eu realizava as postagens diárias no Instagram para divulgação dos dias e horários das lives do canal do meu amigo streamer Tiago.
 
@@ -14,7 +14,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                  ![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dbb81279255317.5cbdfdd8565d3.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dbb81279255317.5cbdfdd8565d3.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -27,7 +27,7 @@ Ferramentas Utilizadas
  - AI
 
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -39,7 +39,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6d5ee471023407.5bf8385fe2e80.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6d5ee471023407.5bf8385fe2e80.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -50,7 +50,7 @@ Uma criação de um vetor para treinar as habilidades nas ferramentas pen tool, 
 Ferramentas Utilizadas
  - AI
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/d71d6971023407.5bf8385fe7a11.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/d71d6971023407.5bf8385fe7a11.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -62,7 +62,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6078a371023407.5bf8385fe89b4.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6078a371023407.5bf8385fe89b4.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -74,8 +74,8 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/c1c26471023407.5bf8385fe1ddb.png)
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/c1c26471023407.5bf8385fe1ddb.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -86,7 +86,7 @@ Criei um nome fictício para uma empresa de curso de inglês e resolvi criar uma
 Ferramentas Utilizadas
  - PSD
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/0b895571023407.5bf8385fea64e.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/0b895571023407.5bf8385fea64e.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -98,7 +98,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                  ![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/cf1f7071023407.5bf8385fe4bdb.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/cf1f7071023407.5bf8385fe4bdb.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -110,7 +110,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                     ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/37ec6571023407.5bf8385fe97ca.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/37ec6571023407.5bf8385fe97ca.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -122,7 +122,7 @@ Ferramentas Utilizadas
  - PSD 
  - AI
 
-                                    ![](https://mir-s3-cdn-cf.behance.net/project_modules/disp/376c9c71023407.5bf8385fdea88.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/disp/376c9c71023407.5bf8385fdea88.png)
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
