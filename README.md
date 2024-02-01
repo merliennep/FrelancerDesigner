@@ -25,6 +25,24 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 
 **IDENTIDADE VISUAL DRAGONFLY**
 
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/c1c26471023407.5bf8385fe1ddb.png)
 ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
-![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/fc4d3771023407.5bf8385fe5ae0.png)
+
+**ARTE PARA PUBLICIDADE DE UMA EMPRESA FICTÍCIA DE INGLÊS**
+
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/0b895571023407.5bf8385fea64e.png)
+
+**LOGOMARCA PARA SALÃO DE BELEZA MODELLUS**
+
+![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/cf1f7071023407.5bf8385fe4bdb.png)
+
+**IDENTIDADE DE PRODUTO DAS FRALDAS INFANTIS E GERIÁTRICAS SAUDÁVEL**
+
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/37ec6571023407.5bf8385fe97ca.png)
+
+**LOGOMARCA PARA O CONSULTÓRIO DE RECUPERÇÃO FÍSICA**
+
+![](https://mir-s3-cdn-cf.behance.net/project_modules/disp/376c9c71023407.5bf8385fdea88.png)
+
+
 
