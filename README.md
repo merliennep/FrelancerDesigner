@@ -1,13 +1,23 @@
-# Frelancer Designer
+# Frelancer Designer 
 Portifólio de materiais de design gráfico PSD/AI
 
-Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empreendedores a terem uma identidade nas redes sociais e no comércio para oderecerem seus serviços aos seus clientes.
+Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empreendedores a terem uma identidade nas redes sociais e no comércio para oFerecerem seus serviços aos seus clientes.
+
+Underscore
 
 **POSTAGEM PARA UM CANAL DE STREAMER**
 
+Nesse trabalho eu realizava as postagens diárias no Instagram para divulgação dos dias e horários das lives do canal do meu amigo streamer Tiago.
+
+ - PSD 
+ - AI
+
 ![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/dbb81279255317.5cbdfdd8565d3.png)
 
+Underscore
+
 **LOGOMARCA BRIGADEIRÍSSIMAS GOURMET**
+
 
 ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/6f5bf671023407.5bf8385fe1168.png)
 
