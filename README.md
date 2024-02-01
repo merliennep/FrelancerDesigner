@@ -1,4 +1,4 @@
-# PORTIFÓLIO DESIGNER
+# PORTIFÓLIO DESIGNER :iphone: :black_nib: :books:
 
 Portifólio de materiais de design gráfico PSD/AI
 
@@ -7,7 +7,6 @@ Coletânea dos melhores trabalhos que fiz e que ajudaram os meus clientes empree
 ____________________________________________________________________________________________________________________________________________________________________________
 
 **POSTAGEM PARA UM CANAL DE STREAMER**
-____________________________________________________________________________________________________________________________________________________________________________
 
 Nesse trabalho eu realizava as postagens diárias no Instagram para divulgação dos dias e horários das lives do canal do meu amigo streamer Tiago.
 
@@ -127,5 +126,13 @@ Ferramentas Utilizadas
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+**LOGOMARCA E MATERIAIS GRÁFICOS PARA A CONSTRUTURA MAIORCA**
 
+Criação de materiais gráficos/papelaria e da logomarca da construtora Maiorca
 
+Ferramentas Utilizadas
+ - PSD 
+ - AI
+
+![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/79ca7571023407.5bf8385fec38a.png)
+![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/0ccddf71023407.5bf8385fdf6bc.png)
