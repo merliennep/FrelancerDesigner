@@ -136,3 +136,14 @@ Ferramentas Utilizadas
 
 ![](https://mir-s3-cdn-cf.behance.net/project_modules/fs/79ca7571023407.5bf8385fec38a.png)
 ![](https://mir-s3-cdn-cf.behance.net/project_modules/max_1200/0ccddf71023407.5bf8385fdf6bc.png)
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+**POSTAGEM PARA UM CANAL DE INFORMAÇÕES SOBRE ASTRONOMIA**
+
+Criação de posts para informações das atividades e encontros do Clube de Astronomia de Brasília para o público geral e seus respectivos sócios.
+
+Ferramentas Utilizadas
+ - PSD
+
+Calendário CAsB de 2025 - (https://www.instagram.com/p/DGS16qqu6pk/?img_index=1)
